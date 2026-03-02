@@ -1,0 +1,1 @@
+# sistema-bancario-legado-2026-1-n
